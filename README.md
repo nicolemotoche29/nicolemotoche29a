@@ -1,2 +1,3 @@
 # nicolemotoche29a
-Informacion
+informacion
+NICOLE
